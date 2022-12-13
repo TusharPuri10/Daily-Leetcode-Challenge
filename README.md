@@ -3,3 +3,6 @@
 -🎯 This way I will get more comfortable using github & git commands and at the same time I will enhance my problem solving skills.
 
 Starting Date -> 9-12-2022
+
+*Update 13-12-2022
+  -> A week is going to end and I was not able to do two questions daily, However I am looking at the brighter side as atleast I am maintaing the consistency.
