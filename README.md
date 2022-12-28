@@ -6,3 +6,9 @@ Starting Date -> 9-12-2022
 
 *Update 13-12-2022
   -> A week is going to end and I was not able to do two questions daily, However I am looking at the brighter side as atleast I am maintaing the consistency.
+  
+*Update 28-12-2022
+  -> I again break my consistency and has not done any question in this past week. Now I am starting again.
+  Starting Date -> 28-12-2022
+   -👺 four questions daily   
+  
